@@ -39,7 +39,6 @@ link to fabric gloves
 1. get wooden skewers
 2. get any large cardboard box
 3. wrap the skewers with foam or paper towels or anything that can hold the pieces of the palm in place as shown in the image
-![](https://drive.google.com/file/d/1ex-ANll7ZZrLKzBSTN2lSbCJVrl10CBp/view?usp=share_link)
 4. stab the wrapped skewers with the knuckles on them into the box
 5. choose a good place to start spray painting
 6. do 2 or 3 layers of painting make sure that you didn't miss any visible spots
